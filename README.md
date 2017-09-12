@@ -1,4 +1,4 @@
-# Core Methods in Educational Data Mining: Syllabus 
+# Core Methods in Educational Data Mining: Syllabus - Anh
 
 ## BEST CLASS EVA!!!!
 
